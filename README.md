@@ -1,2 +1,4 @@
-# Script-Defece-2
-Ambil aja gpp banh:(
+Script Defece Simple
+
+Ambil aja bang gk usah liat contoh"nya 
+Bagus kok:(
